@@ -1,1 +1,1 @@
-this is new file content
+mala magulakne
